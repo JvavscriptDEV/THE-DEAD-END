@@ -27,6 +27,6 @@ The following memes are ended now:
 #### PLEASE REMEMBER THIS FOREVER OR YOU WILL LOSE ONE OF YOUR PRECIOUS MEMES FOREVER!
 
 JVAV Project
-from 2019 2 2022.
+from 2019 to 2022.
 
 # The end.
